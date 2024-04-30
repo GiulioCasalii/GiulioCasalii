@@ -1,4 +1,4 @@
-### Boas-Vindas ao meu perfil de organização 🖤
+### Boas-Vindas ao meu perfil de organização 🖤💻
 
 <div>
   <a href="https://beacons.ai/GiulioCasalii">
